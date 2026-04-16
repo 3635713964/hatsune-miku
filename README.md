@@ -34,7 +34,7 @@
 ![初音未来演唱线稿示例](https://img.sipingseo.com/file/hatsune-miku-line-art/JoEep62q.webp)
 
 ### 3. Q版萌系线稿
-二头身/三头身比例，突出萌系特征，圆润简洁的线条风格，适用于表情包和贴纸周边设计。
+二头身/三头身比例，突出萌系特征，圆润简洁的线条风格，适用于表情包和贴纸周边设计
 ![初音未来Q版线稿示例](https://img.sipingseo.com/file/hatsune-miku-line-art/0tp0MXMM.webp)
 
 ### 4. 动感舞蹈姿势线稿
