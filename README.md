@@ -38,7 +38,7 @@
 ![初音未来Q版线稿示例](https://img.sipingseo.com/file/hatsune-miku-line-art/0tp0MXMM.webp)
 
 ### 4. 动感舞蹈姿势线稿
-捕捉跳跃、旋转腾空瞬间，长发向上飘动，四肢伸展线条充满活力，适用于 MV 分镜设计。
+捕捉跳跃、旋转腾空瞬间，长发向上飘动，四肢伸展线条充满活力，适用于 MV 分镜设计
 ![初音未来舞蹈线稿示例](https://img.sipingseo.com/file/hatsune-miku-line-art/NbNdnxn7.webp)
 
 ## 🚀 轻松四步，创建您的专属线稿
