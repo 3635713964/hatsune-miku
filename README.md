@@ -5,7 +5,7 @@
 [![Pricing](https://img.shields.io/badge/Pricing-100%25%20Free-blue.svg)](https://www.sipingseo.com/zh/line-art-generator/hatsune-miku-line-art)
 [![AI Model](https://img.shields.io/badge/AI%20Models-Nano%20Banana%20Pro%20%7C%20Flux--Kontext-orange.svg)]()
 
-> 免费在线的 AI 动漫角色线稿工具，由 SPAI 线稿助理 / HANYUAI 线稿设计助手 强力驱动。一键智能生成初音未来线稿，支持多种姿势风格，轻松创建个性化的线稿作品。
+> 免费在线的 AI 动漫角色线稿工具，由 SPAI 线稿助理 / HANYUAI 线稿设计助手 强力驱动。一键智能生成初音未来线稿，支持多种姿势风格，轻松创建个性化的线稿作品
 
 👉 **[立即体验官方在线工具：初音未来线稿免费生成](https://www.sipingseo.com/zh/line-art-generator/hatsune-miku-line-art)**
 
