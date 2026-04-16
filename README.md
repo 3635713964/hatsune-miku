@@ -30,7 +30,7 @@
 ![初音未来站姿线稿示例](https://img.sipingseo.com/file/hatsune-miku-line-art/7TBINP0X.webp)
 
 ### 2. 舞台演唱姿势线稿
-精准把握舞台动态，优化线条表现，激情演唱动态与舞台灯光氛围完美融合。
+精准把握舞台动态，优化线条表现，激情演唱动态与舞台灯光氛围完美融合
 ![初音未来演唱线稿示例](https://img.sipingseo.com/file/hatsune-miku-line-art/JoEep62q.webp)
 
 ### 3. Q版萌系线稿
